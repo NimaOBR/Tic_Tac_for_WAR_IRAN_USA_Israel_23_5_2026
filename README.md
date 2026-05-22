@@ -28,6 +28,12 @@ Speech before the US and stock market shutdown
 
 
 
+The new game of negotiations and agreements is for Hajj and finding Mujtaba
+*Don't worry, the attack will be carried out!
+
+*بازی جدید مذاکرات و توافق، برای حج و پیدا کردن *م جت ب ی* است
+*نگران نباشید حمله انجام میشود! 
+
 
 The United States must win so that Jane and Russia become polite and the whole world bows down
 
